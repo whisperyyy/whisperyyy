@@ -1,6 +1,7 @@
 <img width="500" height="279" alt="Image" src="https://github.com/user-attachments/assets/7ce85c85-00a9-4205-b68d-e89a748d2aa3" />
-(Credits to 3A13RX on Pinterest!)
-https://whisperyyy.atabook.org/
+     **(Credits to 3A13RX on Pinterest!)**
+
+**Dni weirdos , Sonic fans int pls ><**
 <!--
 **whisperyyy/whisperyyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
