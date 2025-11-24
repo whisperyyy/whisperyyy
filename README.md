@@ -1,6 +1,6 @@
-<img width="500" height="279" alt="Image" src="https://github.com/user-attachments/assets/7ce85c85-00a9-4205-b68d-e89a748d2aa3" />
+<img width="500" height="279" alt="Image" src="https://github.com/user-attachments/assets/454af641-0cfc-44aa-8fc7-55b0103b7b0f" />
     
-     (Credits to 3A13RX on Pinterest!)
+     Sonic irl 𐔌՞. .՞𐦯
 <!--
 **whisperyyy/whisperyyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
