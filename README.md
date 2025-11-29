@@ -1,4 +1,4 @@
-<img width="500" height="279" alt="Image" src="https://github.com/user-attachments/assets/454af641-0cfc-44aa-8fc7-55b0103b7b0f" />
+<img width="500" height="330" alt="Image" src="https://github.com/user-attachments/assets/7362bb59-1bae-40fb-aa4c-d1eccce5ce2c" />
     
     ° Sonic irl 𐔌՞. .՞𐦯
     ° Sign my ata! , 
