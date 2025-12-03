@@ -15,7 +15,7 @@
 > Trolls/Ragebaiters,
 > Homophobia and Racism, and
 > 15 below,
-![Image](https://github.com/user-attachments/assets/a5e1c74e-9be2-43eb-a2ea-c756e442b28d)
+![Image](https://github.com/user-attachments/assets/b1098afe-2078-402e-a842-f998a4ced03a)
 
 : Int/Fandoms !!
 > Sonic the hedgehog,
