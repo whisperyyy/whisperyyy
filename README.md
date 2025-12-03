@@ -1,4 +1,5 @@
 : HELLO HELLO WELCOME TO MY PROFILE!!
+
 : Here's some information you need to know about me, I apologize for my bad grammar English isn't really my first language. 😭
 ![Image](https://github.com/user-attachments/assets/a25f4efc-0807-4bac-a9e6-e11cccc8f776)
 : Hello! I mostly go by Kai/Shuu you can call me any of my names I dont mind! I have bpd and ppd I'm also genderfluid so any pronounces is fine by me!
