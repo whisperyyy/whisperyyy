@@ -9,6 +9,7 @@
 : Heyyy so im 16-17 yo you can unfriend or dni me if your umcomfy..I dont mind honestly. Yeahhh so I dont know what else to say here...
 ![Image](https://github.com/user-attachments/assets/d4c9f04c-f838-4e32-aa21-cf67b21ed458)
 : I also play roblox!! please do add me if you guys want! (Fyodorlover_real)
+
 : Another thing to know about me is that I have serious anger issues and moodswings so expect me to have dry response sorry gng... I'm lowkey chill tho, I'm also 🇵🇭 !!
 ![Image](https://github.com/user-attachments/assets/31c3da44-5b42-4d9b-931f-3d6597ffc104)
 
