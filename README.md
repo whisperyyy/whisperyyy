@@ -11,6 +11,9 @@
 : Another thing to know about me is that I have serious anger issues and moodswings so expect me to have dry response sorry gng... I'm lowkey chill tho, I'm also 🇵🇭 !!
 ![Image](https://github.com/user-attachments/assets/31c3da44-5b42-4d9b-931f-3d6597ffc104)
 
+: My hobbies/interests are mostly Drawing, Listening to music, Reading, Playing, and drinking coffee. (Yes it is included cause I said so)
+![Image](https://github.com/user-attachments/assets/7621ebd1-9c16-4d2e-a60f-af6eb46645de)
+
 : DNI!! 
 > Sark enjoyers,
 > Trolls/Ragebaiters,
@@ -25,6 +28,6 @@
 > Any roblox Physiological horror games, and
 > Die of Death
 ![Image](https://github.com/user-attachments/assets/68ecb2eb-c477-42f9-b0a2-9a7894a54262)
-
+ 
 : That's all thank you for reading:) [I'm also taken!]
 ![Image](https://github.com/user-attachments/assets/dc8bd1fc-c648-4479-a258-a152ea636a3d)
