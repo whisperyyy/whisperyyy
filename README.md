@@ -24,3 +24,6 @@
 > Any roblox Physiological horror games, and
 > Die of Death
 ![Image](https://github.com/user-attachments/assets/68ecb2eb-c477-42f9-b0a2-9a7894a54262)
+
+: That's all thank you for reading:) [I'm also taken!]
+![Image](https://github.com/user-attachments/assets/dc8bd1fc-c648-4479-a258-a152ea636a3d)
