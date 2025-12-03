@@ -6,7 +6,7 @@
 ![Image](https://github.com/user-attachments/assets/47090502-7dad-462b-933d-2358b27cb161) ![Image](https://github.com/user-attachments/assets/24e834f9-78e4-49cf-aaa8-02e5f1dd6e01)
 
 : Heyyy so im 16-17 yo you can unfriend or dni me if your umcomfy..I dont mind honestly. Yeahhh so I dont know what else to say here...
-![Image](https://github.com/user-attachments/assets/4422ce66-3055-4df4-bb44-1b31454c36f1)
+![Image](https://github.com/user-attachments/assets/d4c9f04c-f838-4e32-aa21-cf67b21ed458)
 : I also play roblox!! please do add me if you guys want! (Fyodorlover_real)
 : Another thing to know about me is that I have serious anger issues and moodswings so expect me to have dry response sorry gng... I'm lowkey chill tho, I'm also 🇵🇭 !!
 ![Image](https://github.com/user-attachments/assets/4694794d-9c3a-4fd6-a0c9-8e224767dde6)
