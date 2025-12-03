@@ -10,6 +10,7 @@
 : I also play roblox!! please do add me if you guys want! (Fyodorlover_real)
 : Another thing to know about me is that I have serious anger issues and moodswings so expect me to have dry response sorry gng... I'm lowkey chill tho, I'm also 🇵🇭 !!
 ![Image](https://github.com/user-attachments/assets/31c3da44-5b42-4d9b-931f-3d6597ffc104)
+
 : DNI!! 
 > Sark enjoyers,
 > Trolls/Ragebaiters,
