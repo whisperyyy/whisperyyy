@@ -3,7 +3,7 @@
 ![Image](https://github.com/user-attachments/assets/a25f4efc-0807-4bac-a9e6-e11cccc8f776)
 : Hello! I mostly go by Kai/Shuu you can call me any of my names I dont mind! I have bpd and ppd I'm also genderfluid so any pronounces is fine by me!
 
-![Image](https://github.com/user-attachments/assets/47090502-7dad-462b-933d-2358b27cb161) ![Image](https://github.com/user-attachments/assets/64cf5026-4292-4a07-aa94-d5d404c51227)
+![Image](https://github.com/user-attachments/assets/47090502-7dad-462b-933d-2358b27cb161) ![Image](https://github.com/user-attachments/assets/24e834f9-78e4-49cf-aaa8-02e5f1dd6e01)
 
 : Heyyy so im 16-17 yo you can unfriend or dni me if your umcomfy..I dont mind honestly. Yeahhh so I dont know what else to say here...
 ![Image](https://github.com/user-attachments/assets/4422ce66-3055-4df4-bb44-1b31454c36f1)
