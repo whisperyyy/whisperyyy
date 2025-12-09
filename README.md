@@ -20,7 +20,7 @@
 > Sark enjoyers,
 > Trolls/Ragebaiters,
 > Homophobia and Racism, and
-> 15 below,
+> 13 below (close friends only exceptional)
 ![Image](https://github.com/user-attachments/assets/bf05d529-6efb-436a-a885-86b82f8492fd)
 
 : Int/Fandoms !!
