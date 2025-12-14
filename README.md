@@ -19,6 +19,12 @@
 Another thing about me is that I have Bpd or Ppd, I sometimes have bad moodswings and anger issues so if I sounded mean or dry I apologize.
 ![Image](https://github.com/user-attachments/assets/8bd3233d-efda-448b-aecb-8a2f82376a52)
 
+Ships I like!! (I respect others too! unless its a pro ship then no.)
+
+Sonadow
+![Image](https://github.com/user-attachments/assets/fc0ad528-4690-49d5-8837-c066def1a3cb)
+Fleetourge
+
 : DNI!! 
 > Sark enjoyers,
 > Trolls/Ragebaiters,
