@@ -19,6 +19,8 @@
 Another thing about me is that I have Bpd or Ppd, I sometimes have bad moodswings and anger issues so if I sounded mean or dry I apologize.
 ![Image](https://github.com/user-attachments/assets/8bd3233d-efda-448b-aecb-8a2f82376a52)
 
+----------------------------------------
+
 Ships I like!! (I respect others too! unless its a pro ship then no.)
 
 Sonadow
@@ -26,6 +28,7 @@ Sonadow
 Fleetourge
 ![Image](https://github.com/user-attachments/assets/08113420-eb9f-43e9-9c08-68bd204bf800)
 Blazamy
+![Image](https://github.com/user-attachments/assets/3d5c5929-e2f9-4c88-a1e4-8298c4987026)
 
 : DNI!! 
 > Sark enjoyers,
