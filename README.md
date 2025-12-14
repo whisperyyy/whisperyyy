@@ -16,26 +16,26 @@
 : My hobbies/interests are mostly Drawing, Listening to music, Reading, Playing, and drinking coffee. (Yes it is included cause I said so)
 ![Image](https://github.com/user-attachments/assets/7621ebd1-9c16-4d2e-a60f-af6eb46645de)
 
-Another thing about me is that I have Bpd or Ppd, I sometimes have bad moodswings and anger issues so if I sounded mean or dry I apologize.
+: Another thing about me is that I have Bpd or Ppd.
 ![Image](https://github.com/user-attachments/assets/8bd3233d-efda-448b-aecb-8a2f82376a52)
 
 ----------------------------------------
 
-Ships I like!! (I respect others too! unless its a pro ship then no.)
+: Ships I like!! (I respect others too! unless its a pro ship then no.)
 
-Sonadow
+: Sonadow
 ![Image](https://github.com/user-attachments/assets/fc0ad528-4690-49d5-8837-c066def1a3cb)
-Fleetourge
+: Fleetourge
 ![Image](https://github.com/user-attachments/assets/08113420-eb9f-43e9-9c08-68bd204bf800)
-Blazamy
+: Blazamy
 ![Image](https://github.com/user-attachments/assets/3d5c5929-e2f9-4c88-a1e4-8298c4987026)
-Knuxouge
+: Knuxouge
 ![Image](https://github.com/user-attachments/assets/b3facc56-2220-4fba-8d6f-4f43dc40f953)
-Mephilver 
+: Mephilver 
 ![Image](https://github.com/user-attachments/assets/43038f72-77d1-470b-9add-fb927ad15b6d)
-Koloexe
+: Koloexe
 ![Image](https://github.com/user-attachments/assets/707cefdd-8096-4094-9404-bd446dff3648)
-and more!!
+: and more!!
 
 ----------------------------------------
 
