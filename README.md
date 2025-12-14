@@ -29,6 +29,9 @@ Fleetourge
 ![Image](https://github.com/user-attachments/assets/08113420-eb9f-43e9-9c08-68bd204bf800)
 Blazamy
 ![Image](https://github.com/user-attachments/assets/3d5c5929-e2f9-4c88-a1e4-8298c4987026)
+Knuxouge
+![Image](https://github.com/user-attachments/assets/b3facc56-2220-4fba-8d6f-4f43dc40f953)
+Mephilver 
 
 : DNI!! 
 > Sark enjoyers,
