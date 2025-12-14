@@ -34,6 +34,10 @@ Knuxouge
 Mephilver 
 ![Image](https://github.com/user-attachments/assets/43038f72-77d1-470b-9add-fb927ad15b6d)
 Koloexe
+![Image](https://github.com/user-attachments/assets/707cefdd-8096-4094-9404-bd446dff3648)
+and more!!
+
+----------------------------------------
 
 : DNI!! 
 > Sark enjoyers,
@@ -44,6 +48,8 @@ Koloexe
 
 : Int/Fandoms !!
 > Sonic the hedgehog,
+> Sonic oddities,
+> Sonic exes,
 > Forsaken,
 > Dandy's World,
 > Any roblox Physiological horror games, and
