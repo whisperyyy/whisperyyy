@@ -16,7 +16,7 @@
 : My hobbies/interests are mostly Drawing, Listening to music, Reading, Playing, and drinking coffee. (Yes it is included cause I said so)
 ![Image](https://github.com/user-attachments/assets/7621ebd1-9c16-4d2e-a60f-af6eb46645de)
 
-: Another thing about me is that I have Bpd or Ppd.
+: Live footage of me suffering irl 
 ![Image](https://github.com/user-attachments/assets/8bd3233d-efda-448b-aecb-8a2f82376a52)
 
 ----------------------------------------
