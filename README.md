@@ -24,6 +24,8 @@ Ships I like!! (I respect others too! unless its a pro ship then no.)
 Sonadow
 ![Image](https://github.com/user-attachments/assets/fc0ad528-4690-49d5-8837-c066def1a3cb)
 Fleetourge
+![Image](https://github.com/user-attachments/assets/08113420-eb9f-43e9-9c08-68bd204bf800)
+Blazamy
 
 : DNI!! 
 > Sark enjoyers,
