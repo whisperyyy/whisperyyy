@@ -32,6 +32,8 @@ Blazamy
 Knuxouge
 ![Image](https://github.com/user-attachments/assets/b3facc56-2220-4fba-8d6f-4f43dc40f953)
 Mephilver 
+![Image](https://github.com/user-attachments/assets/43038f72-77d1-470b-9add-fb927ad15b6d)
+Koloexe
 
 : DNI!! 
 > Sark enjoyers,
