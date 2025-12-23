@@ -1,3 +1,5 @@
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=whisperyyy&label=✶%20&color=8d9ac4&style=flat" alt="paperings" /> </p>
+  
 : HELLO HELLO WELCOME TO MY PROFILE!!
 
 : Here's some information you need to know about me, I apologize for my bad grammar English isn't really my first language. 😭
